@@ -6,30 +6,50 @@ I am still a beginner so instead here is the recipe of the onion soup.
 
 PREP TIME
 20 mins
+
 COOK TIME
 60 mins
+
 TOTAL TIME
 80 mins
+
 SERVINGS
 4 to 6 servings
+
 Much of the success of this soup depends on the stock that you are using, and stock varies tremendously in its taste. Depending on your stock, you may need to bump up the flavor with some beef bouillon (we recommend Better Than Bouillon brand).
 
 Ingredients
+
 6 large red or yellow onions (about 3 pounds)
+
 4 tablespoons extra virgin olive oil
+
 2 tablespoons butter
+
 1 teaspoon sugar
+
 Kosher salt
+
 2 cloves garlic, minced
+
 8 cups beef stock, chicken stock, or a combination of the two
+
 1/2 cup dry vermouth or dry white wine
+
 2 bay leaves
+
 1 tablespoon fresh thyme leaves, a few sprigs of fresh thyme, OR 1/2 teaspoon dried thyme
+
 1/2 teaspoon freshly ground black pepper
+
 2 tablespoons brandy (optional)
+
 8 slices (1 inch thick) French bread or baguette
+
 1 1/2 cups grated Gruyere cheese
+
 Sprinkling grated Parmesan cheese
+
 
 Peel and slice the onions:
 Peel and thinly slice the onions from root to stem. There should be about 10 cups of sliced onions in total.
